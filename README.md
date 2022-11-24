@@ -9,3 +9,4 @@ Gelelim Sunuculara Bot Yapmama Botculara Gücü Yetmeyen Arkadaşlarıma Destek 
 Ayrıca Botcu Olmadığım Halde Botcu Diyip Kendileri İle Yarıştırmaları Çok Komik Bide Dengimiz Değilsin Diyorlar.
 
 ![image](https://cdn.discordapp.com/attachments/966020583341039706/1045277987190362112/Adsz.png)
+![image](https://cdn.discordapp.com/attachments/966020583341039706/1045279976422907964/mavera.png)
